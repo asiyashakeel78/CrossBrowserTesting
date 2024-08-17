@@ -1,4 +1,2 @@
 
-
-![cross browser1](https://github.com/user-attachments/assets/8945e601-a422-4580-a4d6-a2b472e67f74)
-
+![1](https://github.com/user-attachments/assets/0d496dab-6274-40e2-bf74-803c513bf9d4)
